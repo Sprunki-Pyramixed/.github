@@ -1,4 +1,4 @@
-# Sprunki Pyramixed - Play Online & Create Music with Rhythm Free Game 2025
+# Incredibox Sprunki Pyramixed Mod - Play Online & Create Music with Rhythm Free Game 2025
 
 ## [Play Now Sprunki Pyramixed Game!](https://sprunkiall.com/sprunki-pyramixed.html)
 
